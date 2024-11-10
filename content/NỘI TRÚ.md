@@ -11,9 +11,11 @@ longform:
 - bốc thăm 1 trong 4 môn cơ sở trước giờ thi [[SINH DI TRUYỀN]] ; [[SINH LÝ]] ; [[HÓA SINH]] ; [[GIẢI PHẪU]]
 - môn chuyên ngành chính và chuyên ngành phụ
 
-![[Pasted image 20241110142452.png]]
+![[Ảnh chụp màn hình 2024-11-10 142444.png]]
 
 <center>tuyển sinh bsnt y cần thơ 2024</center>
 # 2 NỘI TRÚ YDS
+
+
 
 
